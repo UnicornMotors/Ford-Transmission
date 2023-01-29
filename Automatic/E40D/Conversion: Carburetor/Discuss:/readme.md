@@ -1,0 +1,2 @@
+- https://www.fullsizebronco.com/threads/e4od-and-carb-engine.519622/
+- https://www.ford-trucks.com/forums/1006683-e40d-with-carburetor.html
